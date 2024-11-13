@@ -15,4 +15,4 @@
 4. UI/UX
 
 ## 유튜브 링크
-
+https://youtu.be/Lensvi3N_kQ
